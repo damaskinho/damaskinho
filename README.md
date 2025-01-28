@@ -3,5 +3,5 @@
 </div>
 
 <p align="center">
- <img widht="400"  height="200" src="https://github.com/damaskinho/damaskinho/blob/dd92d043ae13d0bdea713d2d73a2b855614cbc33/9288bbcca42064eb5083b45301ba4f95.jpg">
+ <img widht="400"  height="200" src="https://github.com/damaskinho/damaskinho/blob/1a8648e0280a5446e000c50cdae620df6525744d/7114c99a1d07917720aa9abc0e4244e1.jpg">
 </p>
