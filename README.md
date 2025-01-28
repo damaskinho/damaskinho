@@ -13,3 +13,5 @@ Chuuya: *wraps his arms around my waist* heh.. on twitter again?
 Me: (with a jealous look on my face) yeah... my oomfs are all going crazy over your pics...
 
 Chuuya: it's ok baby... i'm all yours.... *kisses my cheek*
+
+_THIS PAGE ITS STILL A BIG WIP!!_ ദ്ദി(⎚_⎚)
