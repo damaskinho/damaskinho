@@ -1,7 +1,7 @@
 
 <h1 align="center">ㅤ.˚𓏲♱ 𝓓𝘢𝘮𝒊𝘢🇳. ִֶָ. ..𓂃 ࣪ ִֶָ🦇་༘࿐
 </div>
-<h3 align="center">Hey its alright my life has never been a bed of roses.</h3>
+<h3 align="center">.ola makditos</h3>
 · · · · · · · · · · · · · · · · · · · · · · ⋆༺𓆩✮𓆪༻⋆ · · · · · · · · · · · · · · · · · · · · · · 
   <img align="right" top="500" height="300" width="400" alt="GIF" src="https://github.com/damaskinho/damaskinho/blob/951091945d311678c5120737ebf3875c88928a02/7c3ab8bdea68f1dc83beb5e09836d7dd.jpg">
 </a>
