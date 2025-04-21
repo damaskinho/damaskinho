@@ -1,8 +1,8 @@
 
 <h1 align="center">ㅤAAAHOLA SOU DAMIAN
 </div>
-<h3 align="center">adrian i lexy los qiero mucho</h3>
-· · · · · · · · · · · · · · · · · · · · · · ⋆༺𓆩✮𓆪༻⋆ · · · · · · · · · · · · · · · · · · · · · · 
+<h3 align="center">odio a adrián y a lexy.. EXTREMELY LOUD INCORRECT BUZZER❌❌🚫</h3>
+· · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · ·  · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · · 
   <img align="right" top="500" height="300" width="400" alt="GIF" src="https://github.com/damiansito7u7/damiansito7u7/blob/main/ce2417806ae5865b35d6dab6cb810a69.jpg">
 </a>
 
