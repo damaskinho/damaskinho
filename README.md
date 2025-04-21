@@ -17,4 +17,4 @@ Chuuya: it's ok baby... i'm all yours.... *kisses my cheek*
 _aaaa me da pereza terminar est9_ ദ്ദി(⎚_⎚)
 
 
-  <img align="left" top="900" height="95" width="565" alt="GIF" src="https://github.com/damiansito7u7/damiansito7u7/blob/main/fd34d198c0b112e14cea59565b9aac30.jpg">
+  <img align="left" top="900" height="95" width="300" alt="GIF" src="https://github.com/damiansito7u7/damiansito7u7/blob/main/fd34d198c0b112e14cea59565b9aac30.jpg">
